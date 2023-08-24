@@ -1,1 +1,0 @@
-# hellomag.github.io
